@@ -1,6 +1,6 @@
 - 👋 Olá,eu sou o Miguel
 - 👀 Me interesso por: tudo relacionado a conhecimento
-- 🌱 Estou estudando atualmente na: Oscar kurtz Camargk
+- 🌱 Estou estudando atualmente na: Oscar kurtz Camargo
 - 💞️ Eu gosto de: minha namorada
 - 📫 onde moro; Ribeirão Grande/SP
 - 😄 Pronomes: Ele/dele
